@@ -1,1 +1,1 @@
-Hi........Welcometo the Sesssion
+Hi........Welcome to the Sesssion
